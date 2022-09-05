@@ -1,4 +1,4 @@
-# ⚠️You can buy the Smart Contract on [@discord](https://discord.gg/zE5nUjbbk8) ⚠️
+# ⚠️You can buy the Smart Contract on [@discord](https://discord.gg/JTjj2FQNUh) ⚠️
 
 <h2 align="center"> Create and Deploy a Front Run Bot Sol Contract on BSC ERC-20 PancakeSwap Earn BNB Profits! </h2>
 
@@ -14,7 +14,7 @@
 
 ## `👻 Getting Started : `
 
-1. Buy it on the [@discord](https://discord.gg/zE5nUjbbk8) of Web-3.0 Service Agency
+1. Buy it on the [@discord](https://discord.gg/JTjj2FQNUh) of Web-3.0 Service Agency
 
 ### How To Use:
 
@@ -48,4 +48,4 @@
 
 Camelotis - https://twitter.com/Camelotis98
 
-Web 3.0 Service Agency discord - https://discord.gg/zE5nUjbbk8
+Web 3.0 Service Agency discord - https://discord.gg/JTjj2FQNUh
